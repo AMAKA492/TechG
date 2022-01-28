@@ -1,3 +1,3 @@
 # TechG
 Solving problem with Technology
-I love :juice: :chicken: and :salad
+I love :juice: :cookie: and :salad
